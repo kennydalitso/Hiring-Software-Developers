@@ -1,0 +1,2 @@
+# Hiring-Software-Developers
+DEAR Developers,  We’ve never met, but I’ve been following you on and/or waiting for your connection on LinkedIn, you are a great fit for Software Development roles that I currently have and it would make a great opportunity for all of you.  Your careers' progression was the best yet, I bet I can make all reach new heights!   Positions based in CPT, PTA and JHB  Best Regards, Kennedy Zwane kenny@dalitso.co.za 0127532425
